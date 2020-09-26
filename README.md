@@ -12,4 +12,4 @@ Discord: https://discord.gg/sokin
 
 
 
-https://sokin.xyz
+Website : https://sokin.xyz
