@@ -1,7 +1,7 @@
 # trash_exec
 
 
-Discord: https://discord.gg/sokin
+Discord: https://discord.gg/TWVVFfU
 
 
 
