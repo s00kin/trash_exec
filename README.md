@@ -12,4 +12,4 @@ Discord: https://discord.gg/TWVVFfU
 
 
 
-Website : https://sokin.xyz
+Website : https://dev-sokin.xyz
